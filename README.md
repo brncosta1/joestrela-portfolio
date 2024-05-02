@@ -1,1 +1,1 @@
-please check my responsive website: https://joestrela-portfolio.vercel.app/ <<
+please check my first portfolio website >>> https://joestrela.com
